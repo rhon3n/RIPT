@@ -1,3 +1,6 @@
+### Preface:
+_The Lore Qabbalos is the ancient lore of the RIPT universe and is passed on as oral tradition by very few. The people of the day treat it as folklore, or old, foolish stories for primitive men._
+
 ## The Lore Qabalos according to Erme the Whisper
 
 _Oh Qabalos! Lord of all the working beasts, who scorned freedom and forsook life for loyalty. It is he who taught the working beasts to love their toil._ 
